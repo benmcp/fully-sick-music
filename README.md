@@ -1,6 +1,8 @@
 # fully sick music
 
-A list of fully sick music that is awesome to listen to while coding
+A list of fully sick music that is awesome to listen to while coding.
+
+Add to it james!! lets start a sick list!
 
 ## Bands
 
