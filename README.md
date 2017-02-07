@@ -11,9 +11,9 @@ A list of fully sick music that is awesome to listen to while coding
 
 ### Mastodon
 
-* [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE){:target="_blank"}
-* [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28){:target="_blank"}
+* [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
+* [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28)
 
 ### Gojira
 
-* [Magma (2016)](https://www.youtube.com/watch?v=njgOZNaChEQ){:target="_blank"}
+* [Magma (2016)](https://www.youtube.com/watch?v=njgOZNaChEQ)
