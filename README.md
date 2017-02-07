@@ -4,8 +4,8 @@ A list of fully sick music that is awesome to listen to while coding
 
 ## Bands
 
-* [Mastodon](#Mastodon)
-* [Gojira](#Gojira)
+* [Mastodon](#mastodon)
+* [Gojira](#gojira)
 
 ## Albums
 
