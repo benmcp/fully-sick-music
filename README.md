@@ -8,7 +8,8 @@ Add to it james!! lets start a sick list!
 
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
-* [The Dillinger Escape Plan](#the-dillinger-escape-plan))
+* [The Dillinger Escape Plan](#the-dillinger-escape-plan)
+
 ## Albums
 
 ### Mastodon
@@ -22,4 +23,4 @@ Add to it james!! lets start a sick list!
 
 ### The Dillinger Escape Plan
 
-* [One of Us Is the Killer (2013)](https://github.com/benmcp/fully-sick-music.git)
+* [One of Us Is the Killer (2013)](https://www.youtube.com/watch?v=0GPxq3ZaaL8)
