@@ -9,6 +9,7 @@ Add to it james!! lets start a sick list!
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
 * [The Dillinger Escape Plan](#the-dillinger-escape-plan)
+* [Strapping Young Lad](#strapping-young-lad)
 
 ## Albums
 
@@ -25,3 +26,8 @@ Add to it james!! lets start a sick list!
 ### The Dillinger Escape Plan
 
 * [One of Us Is the Killer (2013)](https://www.youtube.com/watch?v=0GPxq3ZaaL8)
+
+### Strapping Young Lad
+
+* [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
+
