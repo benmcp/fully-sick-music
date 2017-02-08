@@ -30,4 +30,5 @@ Add to it james!! lets start a sick list!
 ### Strapping Young Lad
 
 * [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
+* [Alien (2002)](https://www.youtube.com/watch?v=RsNdbSN9oTQ)
 
