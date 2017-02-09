@@ -6,12 +6,17 @@ Add to it james!! lets start a sick list!
 
 ## Bands
 
+* [Devin Townsend Projct](#devin-townsend-project)
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
 * [The Dillinger Escape Plan](#the-dillinger-escape-plan)
 * [Strapping Young Lad](#strapping-young-lad)
 
 ## Albums
+
+### Devin Townsend Project
+
+* [Deconstruction (2011)](https://www.youtube.com/watch?v=nr-t4aL1anw)
 
 ### Mastodon
 
