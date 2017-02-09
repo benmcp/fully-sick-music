@@ -23,6 +23,7 @@ Add to it james!! lets start a sick list!
 
 ### Electric Wizard
 * [Come My Fanatics (1997)](https://www.youtube.com/watch?v=-eUVubC7ojM)
+* [Dopethrone (2000)](https://www.youtube.com/watch?v=eaMbKZPBruU)
 
 ### Gag
 * [America's Greatest Hits (2015)](https://www.youtube.com/watch?v=b5oMjH-jg0c)
