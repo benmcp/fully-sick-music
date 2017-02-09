@@ -43,6 +43,10 @@ Add to it james!! lets start a sick list!
 ### The Dillinger Escape Plan
 * [One of Us Is the Killer (2013)](https://www.youtube.com/watch?v=0GPxq3ZaaL8)
 
+### The Sword
+* [Warp Riders (2010)](https://www.youtube.com/watch?v=PjKI_U9ENwU)
+* [Apocryphon (2012)](https://www.youtube.com/watch?v=2pjSmHC1VwY)
+
 ## Electronic
 ## Infected Mushroom
 * [Return to the Sauce (2016)](https://www.youtube.com/watch?v=S5LvhKbsHWU)
