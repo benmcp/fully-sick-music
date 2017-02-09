@@ -7,10 +7,12 @@ Add to it james!! lets start a sick list!
 ## Bands
 
 * [Devin Townsend Projct](#devin-townsend-project)
+* [Electric Wizard](#electric-wizard)
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
-* [The Dillinger Escape Plan](#the-dillinger-escape-plan)
+* [Sepultura](#sepultura)
 * [Strapping Young Lad](#strapping-young-lad)
+* [The Dillinger Escape Plan](#the-dillinger-escape-plan)
 
 ## Albums
 ## Metal
@@ -35,6 +37,10 @@ Add to it james!! lets start a sick list!
 ### Mastodon
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
 * [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28)
+
+## Sepultura
+
+* [Roots (1996)](https://www.youtube.com/watch?v=v2f8kd1d278)
 
 ### Strapping Young Lad
 * [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
