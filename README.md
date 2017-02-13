@@ -11,6 +11,7 @@ Add to it james!! lets start a sick list!
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
 * [Sepultura](#sepultura)
+* [Slayer](#Slayer)
 * [Strapping Young Lad](#strapping-young-lad)
 * [The Dillinger Escape Plan](#the-dillinger-escape-plan)
 
@@ -38,9 +39,11 @@ Add to it james!! lets start a sick list!
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
 * [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28)
 
-## Sepultura
-
+### Sepultura
 * [Roots (1996)](https://www.youtube.com/watch?v=v2f8kd1d278)
+
+### Slayer
+* [God Hates Us All (2001)](https://www.youtube.com/watch?v=8lA437iOS-Y)
 
 ### Strapping Young Lad
 * [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
@@ -54,16 +57,16 @@ Add to it james!! lets start a sick list!
 * [Apocryphon (2012)](https://www.youtube.com/watch?v=2pjSmHC1VwY)
 
 ## Electronic
-## Infected Mushroom
+### Infected Mushroom
 * [Return to the Sauce (2016)](https://www.youtube.com/watch?v=S5LvhKbsHWU)
 
 ## HipHop
-## OutKast
+### OutKast
 * [Stankonia (2000)](https://www.youtube.com/watch?v=qjLvpioVl1o)
 
-## Cool Keith
+### Cool Keith
 * [Black Elvis/Lost In Space (1999)](https://www.youtube.com/watch?v=dlYkKZsXGl0)
 
 ## Jazz
-## Schizofrenia
+### Schizofrenia
 * [Taste of Blues (1969)](https://www.youtube.com/watch?v=F9wcBGBwlt0)
