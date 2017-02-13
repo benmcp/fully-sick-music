@@ -11,7 +11,7 @@ Add to it james!! lets start a sick list!
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
 * [Sepultura](#sepultura)
-* [Slayer](#Slayer)
+* [Slayer](#slayer)
 * [Strapping Young Lad](#strapping-young-lad)
 * [The Dillinger Escape Plan](#the-dillinger-escape-plan)
 
