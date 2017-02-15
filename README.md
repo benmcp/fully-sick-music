@@ -8,6 +8,7 @@ Add to it james!! lets start a sick list!
 
 * [Devin Townsend Projct](#devin-townsend-project)
 * [Electric Wizard](#electric-wizard)
+* [Lamb of God](#lamb-of-god)
 * [Mastodon](#mastodon)
 * [Gojira](#gojira)
 * [Sepultura](#sepultura)
@@ -38,6 +39,10 @@ Add to it james!! lets start a sick list!
 ### Gojira
 * [Magma (2016)](https://www.youtube.com/watch?v=njgOZNaChEQ)
 * [From Mars To Sirius (2005)](https://www.youtube.com/watch?v=kMZSJCgn_K8)
+
+### Lamb of God
+* [Ashes Of The Wake(2004)](https://www.youtube.com/watch?v=FNGEQmzDLR0)
+* [Wrath (2009)](https://www.youtube.com/watch?v=6gv-Ohw4kAw)
 
 ### Mastodon
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
