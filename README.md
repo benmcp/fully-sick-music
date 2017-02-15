@@ -18,6 +18,10 @@ Add to it james!! lets start a sick list!
 ## Albums
 ## Metal
 
+### The Black Dahlia Murder
+* [Nocturnal 2007)](https://www.youtube.com/watch?v=NfERhTeYe4w)
+* [Everblack 2013)](https://www.youtube.com/watch?v=gH9VxwZHnw0)
+
 ### Devin Townsend Project
 * [Deconstruction (2011)](https://www.youtube.com/watch?v=nr-t4aL1anw)
 
@@ -44,6 +48,7 @@ Add to it james!! lets start a sick list!
 
 ### Slayer
 * [God Hates Us All (2001)](https://www.youtube.com/watch?v=8lA437iOS-Y)
+* [World Painted Blood (2009)](https://www.youtube.com/watch?v=0oRO_zWs1is)
 
 ### Strapping Young Lad
 * [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
