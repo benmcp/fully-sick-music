@@ -43,6 +43,7 @@ Add to it james!! lets start a sick list!
 ### Lamb of God
 * [Ashes Of The Wake(2004)](https://www.youtube.com/watch?v=FNGEQmzDLR0)
 * [Wrath (2009)](https://www.youtube.com/watch?v=6gv-Ohw4kAw)
+* [Sacrament (2006)](https://www.youtube.com/watch?v=0Nm2O-aEzgM&spfreload=10)
 
 ### Mastodon
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
