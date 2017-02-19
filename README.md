@@ -2,8 +2,6 @@
 
 A list of fully sick music that is awesome to listen to while coding.
 
-Add to it james!! lets start a sick list!
-
 ## Bands
 
 * [Devin Townsend Projct](#devin-townsend-project)
@@ -34,12 +32,18 @@ Add to it james!! lets start a sick list!
 * [Come My Fanatics (1997)](https://www.youtube.com/watch?v=-eUVubC7ojM)
 * [Dopethrone (2000)](https://www.youtube.com/watch?v=eaMbKZPBruU)
 
+### Fistula
+* [Longing for Infection (2016)](https://www.youtube.com/watch?v=NOqOicwW2-U)
+
 ### Gag
 * [America's Greatest Hits (2015)](https://www.youtube.com/watch?v=b5oMjH-jg0c)
 
 ### Gojira
 * [Magma (2016)](https://www.youtube.com/watch?v=njgOZNaChEQ)
 * [From Mars To Sirius (2005)](https://www.youtube.com/watch?v=kMZSJCgn_K8)
+
+### Iron Reagan
+* [Crossover Ministry (2017)](https://www.youtube.com/watch?v=HkKCoOTuNPE)
 
 ### Lamb of God
 * [Ashes Of The Wake(2004)](https://www.youtube.com/watch?v=FNGEQmzDLR0)
