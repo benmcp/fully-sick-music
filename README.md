@@ -54,6 +54,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
 * [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28)
 
+### Meth Drinker
+* [Meth Drinker (2011)](https://www.youtube.com/watch?v=tUpluM-hWk0)
+
 ### Sepultura
 * [Roots (1996)](https://www.youtube.com/watch?v=v2f8kd1d278)
 
