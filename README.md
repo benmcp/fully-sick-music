@@ -15,6 +15,13 @@ A list of fully sick music that is awesome to listen to while coding.
 * [The Dillinger Escape Plan](#the-dillinger-escape-plan)
 
 ## Albums
+
+## Alternative Rock
+
+### Puscifer
+
+* [Money Shot (2015)](https://www.youtube.com/watch?v=mz7XK847zZc)
+
 ## Metal
 
 ### The Black Dahlia Murder
