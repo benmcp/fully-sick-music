@@ -53,6 +53,9 @@ A list of fully sick music that is awesome to listen to while coding.
 ### Iron Reagan
 * [Crossover Ministry (2017)](https://www.youtube.com/watch?v=HkKCoOTuNPE)
 
+### Job For a Cowboy
+* [Doom (2005)](https://www.youtube.com/watch?v=84MlPRwF15Q)
+
 ### Lamb of God
 * [Ashes Of The Wake(2004)](https://www.youtube.com/watch?v=FNGEQmzDLR0)
 * [Wrath (2009)](https://www.youtube.com/watch?v=6gv-Ohw4kAw)
