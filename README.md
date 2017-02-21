@@ -20,6 +20,7 @@ A list of fully sick music that is awesome to listen to while coding.
 
 ### Puscifer
 
+* [Conditions of my Parole (2011)](https://www.youtube.com/watch?v=Ug6_yS6-a4I)
 * [Money Shot (2015)](https://www.youtube.com/watch?v=mz7XK847zZc)
 
 ## Metal
