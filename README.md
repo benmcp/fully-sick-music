@@ -86,6 +86,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [Warp Riders (2010)](https://www.youtube.com/watch?v=PjKI_U9ENwU)
 * [Apocryphon (2012)](https://www.youtube.com/watch?v=2pjSmHC1VwY)
 
+### Zimmers Hole
+* [When you're shouting at the devil(2008)](https://www.youtube.com/watch?v=DktTX6bV3fM)
+
 ## Electronic
 ### Infected Mushroom
 * [Return to the Sauce (2016)](https://www.youtube.com/watch?v=S5LvhKbsHWU)
