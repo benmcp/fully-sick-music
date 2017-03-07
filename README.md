@@ -93,6 +93,9 @@ A list of fully sick music that is awesome to listen to while coding.
 ### Infected Mushroom
 * [Return to the Sauce (2016)](https://www.youtube.com/watch?v=S5LvhKbsHWU)
 
+### Tycho
+* [Dive (2011)](https://www.youtube.com/watch?v=Z6ih1aKeETk)
+
 ## HipHop
 ### OutKast
 * [Stankonia (2000)](https://www.youtube.com/watch?v=qjLvpioVl1o)
