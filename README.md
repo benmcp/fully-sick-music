@@ -86,6 +86,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [Warp Riders (2010)](https://www.youtube.com/watch?v=PjKI_U9ENwU)
 * [Apocryphon (2012)](https://www.youtube.com/watch?v=2pjSmHC1VwY)
 
+### Windhand
+* [Windhand (2012)](https://www.youtube.com/watch?v=siMwaFeJZdc)
+
 ### Zimmers Hole
 * [When you're shouting at the devil(2008)](https://www.youtube.com/watch?v=DktTX6bV3fM)
 
