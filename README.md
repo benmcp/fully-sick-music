@@ -47,7 +47,7 @@ A list of fully sick music that is awesome to listen to while coding.
 * [America's Greatest Hits (2015)](https://www.youtube.com/watch?v=b5oMjH-jg0c)
 
 ### Gojira
-* [Magma (2016)](https://www.youtube.com/watch?v=njgOZNaChEQ)
+* [Magma (2016)](https://www.youtube.com/watch?v=d9DXpsjbqA0&list=PLFyhurrP9u36Rwxpv5w2eqBq7zpl7XOx6)
 * [From Mars To Sirius (2005)](https://www.youtube.com/watch?v=kMZSJCgn_K8)
 
 ### Iron Reagan
