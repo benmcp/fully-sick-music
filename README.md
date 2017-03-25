@@ -106,6 +106,9 @@ A list of fully sick music that is awesome to listen to while coding.
 ### Cool Keith
 * [Black Elvis/Lost In Space (1999)](https://www.youtube.com/watch?v=dlYkKZsXGl0)
 
+### DJ Shado
+* [The Mountain Will Fall (2016)](https://www.youtube.com/watch?v=7uJhTOPzF6A)
+
 ## Jazz
 ### Schizofrenia
 * [Taste of Blues (1969)](https://www.youtube.com/watch?v=F9wcBGBwlt0)
