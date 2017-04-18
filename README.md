@@ -20,6 +20,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [At Action Park (1994)](https://www.youtube.com/watch?v=ikMB1CKztC4)
 * [1000 Hurts (2000)](https://www.youtube.com/watch?v=7fXwbFxenC0)
 
+### The Jesus Lizard
+* [Shot (1996)](https://www.youtube.com/watch?v=sAONnsf6trc)
+
 ## Metal
 
 #### The Black Dahlia Murder
