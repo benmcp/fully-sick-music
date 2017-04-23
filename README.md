@@ -100,6 +100,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [Dive (2011)](https://www.youtube.com/watch?v=Z6ih1aKeETk)
 
 ## HipHop
+#### Death Grips
+* [NO LOVE DEEP WEB (2012)](https://www.youtube.com/watch?v=eu-MFuqymsc)
+
 #### OutKast
 * [Stankonia (2000)](https://www.youtube.com/watch?v=qjLvpioVl1o)
 
