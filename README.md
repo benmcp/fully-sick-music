@@ -64,6 +64,8 @@ A list of fully sick music that is awesome to listen to while coding.
 #### Mastodon
 * [Crack the Skye (2009)](https://www.youtube.com/watch?v=fcvdkw6v3fE)
 * [The Hunter (2011)](https://www.youtube.com/watch?v=Acna6jcCU28)
+* [Once More Round the Sun (2014)](https://www.youtube.com/watch?v=yXiz-VSaaXU)
+* [Emperor of Sand (2017)](https://www.youtube.com/watch?v=BZt7PPjpKuA&t=2316s)
 
 #### Meth Drinker
 * [Meth Drinker (2011)](https://www.youtube.com/watch?v=tUpluM-hWk0)
