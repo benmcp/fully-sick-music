@@ -14,6 +14,11 @@ A list of fully sick music that is awesome to listen to while coding.
 #### Boris
 * [Pink 2005](https://www.youtube.com/watch?v=Wj3EFzNwhxM)
 
+### The Aristocrats
+* [The Aristocrats (2011)](https://www.youtube.com/watch?v=_vawfvKSqO4)
+* [Culture Clash (2013)](https://www.youtube.com/watch?v=lXrqFBQSSgY)
+* [Três Cabaleros (2015)](https://www.youtube.com/watch?v=eGWBPNtjoO4)
+
 ## Post Punk
 
 #### Shelloc
