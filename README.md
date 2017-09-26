@@ -28,6 +28,11 @@ A list of fully sick music that is awesome to listen to while coding.
 ### The Jesus Lizard
 * [Shot (1996)](https://www.youtube.com/watch?v=sAONnsf6trc)
 
+## Noise Rock
+
+#### METZ
+* [Strange Peace (2017)](https://www.youtube.com/watch?v=kANA9UD4vKI
+
 ## Metal
 
 #### The Black Dahlia Murder
