@@ -36,7 +36,7 @@ A list of fully sick music that is awesome to listen to while coding.
 ## Noise Rock
 
 #### METZ
-* [Strange Peace (2017)](https://www.youtube.com/watch?v=kANA9UD4vKI
+* [Strange Peace (2017)](https://www.youtube.com/watch?v=kANA9UD4vKI)
 
 ## Metal
 
