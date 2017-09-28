@@ -19,6 +19,11 @@ A list of fully sick music that is awesome to listen to while coding.
 * [Culture Clash (2013)](https://www.youtube.com/watch?v=lXrqFBQSSgY)
 * [Três Cabaleros (2015)](https://www.youtube.com/watch?v=eGWBPNtjoO4)
 
+## Goth Rock/Doom
+
+### Chelsea Wolfe 
+* [Hiss Spun (2017)](https://www.youtube.com/watch?v=ZDU78eHCezw)
+
 ## Post Punk
 
 #### Shelloc
