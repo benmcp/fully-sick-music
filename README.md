@@ -95,6 +95,9 @@ A list of fully sick music that is awesome to listen to while coding.
 * [God Hates Us All (2001)](https://www.youtube.com/watch?v=8lA437iOS-Y)
 * [World Painted Blood (2009)](https://www.youtube.com/watch?v=0oRO_zWs1is)
 
+#### Sleep
+* [Dopesmoker (2003)](https://www.youtube.com/watch?v=hIw7oeZKpZc)
+
 #### Strapping Young Lad
 * [City (1997)](https://www.youtube.com/watch?v=QrtUmgNFoHk)
 * [Alien (2002)](https://www.youtube.com/watch?v=RsNdbSN9oTQ)
